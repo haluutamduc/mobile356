@@ -1,1 +1,6 @@
-# mobile356
+Họ và tên: Hà Lưu Tâm Đức
+Msv: 22810310229
+
+![486607884_1357119035568553_4957028312636071361_n (1)](https://github.com/user-attachments/assets/129cca51-4b49-4ec3-a6b4-79eb03b8f577)
+![486396617_1034173372103396_7304039933898967659_n (1)](https://github.com/user-attachments/assets/2883b9d2-4481-4d43-811e-18fe2d1b19b9)
+![486396617_1034173372103396_7304039933898967659_n](https://github.com/user-attachments/assets/78d3732d-27a9-4344-a7ee-b7c921e1f8fc)
